@@ -1,5 +1,5 @@
 # 💫 About Me:
-📱 Mobile and Back-end developper <br>🌱 Working at Epseed<br>🤝 Looking for a designer
+📱 Mobile and Back-end developper <br>🌱 Working at Epseed
 
 
 ## 🌐 Socials:
